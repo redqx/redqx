@@ -1,2 +1,2 @@
-![](./bk-2024-01-12_19-01-17.png)
-
+- 👋 hi, guys,I am a college student now.
+- 🌱 Meanwhile, I haven't found an internship yet, but most people have already found one. 
